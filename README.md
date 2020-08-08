@@ -1,1 +1,1 @@
-## Dev Portfolio :wave:
+## Dev Portfolio
